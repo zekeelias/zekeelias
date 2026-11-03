@@ -4,5 +4,5 @@
    <img width="300" height="300" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled430_20261103220756.png>
    </br>
 <p align="center">
- ${\textsf{\color{#690202}please call me coy ! }}$ ${\textsf{\color{#690202}i use he/him }}$ ${\textsf{\color{#380202}i am 18 years old}}$ ${\textsf{\color{#380202}therefore if you are}}$ ${\textsf{\color{#1F0101}16 or under please }}$ ${\textsf{\color{#1F0101}do not expect me to}}$ ${\textsf{\color{#1F0101}interact with you}}$
+ ${\textsf{\color{#690202}please call me coy ! }}$ ${\textsf{\color{#690202}i use he/him }}$ ${\textsf{\color{#690202}i am 18 years old}}$ ${\textsf{\color{#690202}therefore if you are}}$ ${\textsf{\color{#690202}16 or under please }}$ ${\textsf{\color{#690202}do not expect me to}}$ ${\textsf{\color{#690202}interact with you}}$
 </br>
