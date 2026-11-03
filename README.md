@@ -5,4 +5,5 @@
    </br>
 <p align="center">
  ${\textsf{\color{#690202}please call me coy ! }}$ ${\textsf{\color{#690202}i use he/him }}$ ${\textsf{\color{#690202}i am 18 years old}}$ ${\textsf{\color{#690202}therefore if you are}}$ ${\textsf{\color{#690202}16 or under please }}$ ${\textsf{\color{#690202}do not expect me to}}$ ${\textsf{\color{#690202}interact with you}}$
-</br>
+<p align="center">
+ ${\textsf{\color{#690202}im currently very fixated on danganronpa antebellum lockdown , its been a project ive been keeping my eyes on since chapter 2 deadly life and im very inlove with it and tend to gush over the writing and characters , my favourites being ; zeke (as if that wasnt obvious) , lyra , asu , alora , shinku , fu , iz , mint. }}$
