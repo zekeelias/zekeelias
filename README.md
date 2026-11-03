@@ -14,6 +14,6 @@ ${\textsf{\color{#AB0303} zeke (as if that wasnt obvious) , lyra , asu , alora ,
 <p align="center">
 ${\textsf{\color{#AB0303} peppermint , lyemene and in a platonic way lyrazeke and lyrasuzeke }}$
 </br>
+
 <p align="center">
-<img width="100" height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled430_20261103223820.png>
-${\textsf{\color{#AB0303 other interests!}}$
+<img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103233059.png>
