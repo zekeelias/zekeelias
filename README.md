@@ -10,4 +10,6 @@
  <p align="center">
  ${\textsf{\color{#AB0303}chapter 2 deadly life and im very inlove with it and tend to gush over the writing and characters , my favourites being ; }}$
 <p align="center">
-${\textsf{\color{#AB0303} zeke (as if that wasnt obvious) , lyra , asu , alora , shinku , fu , iz , mint. }}$
+${\textsf{\color{#AB0303} zeke (as if that wasnt obvious) , lyra , asu , alora , shinku , fu , iz , mint. i do love my shinzeke content ALOT aswell as }}$
+<p align="center">
+${\textsf{\color{#AB0303} peppermint , lyeme and in a platonic way lyrazeke and lyrasuzeke }}$
