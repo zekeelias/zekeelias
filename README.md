@@ -12,4 +12,4 @@
 <p align="center">
 ${\textsf{\color{#AB0303} zeke (as if that wasnt obvious) , lyra , asu , alora , shinku , fu , iz , mint. i do love my shinzeke content ALOT aswell as }}$
 <p align="center">
-${\textsf{\color{#AB0303} peppermint , lyeme and in a platonic way lyrazeke and lyrasuzeke }}$
+${\textsf{\color{#AB0303} peppermint , lyemene and in a platonic way lyrazeke and lyrasuzeke }}$
