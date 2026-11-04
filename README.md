@@ -6,7 +6,7 @@
 <p align="center">
  ${\textsf{\color{#AB0303}please call me coy ! }}$ ${\textsf{\color{#AB0303}i use he/him }}$ ${\textsf{\color{#AB0303}i am 18 years old}}$ ${\textsf{\color{#AB0303}therefore if you are}}$ ${\textsf{\color{#AB0303}16 or under please }}$ ${\textsf{\color{#AB0303}do not expect me to}}$ ${\textsf{\color{#AB0303}interact with you}}$
 </br>
-${\textsf{\color{#AB0303} i love foxes #foxsona and i am a little bit deluded and do see myself as a vampire or that I could be one }}$
+${\textsf{\color{#AB0303} i love foxes hashtag foxsona and i am a little bit deluded and do see myself as a vampire or that I could be one }}$
 </br>
  ${\textsf{\color{#AB0303}im currently very fixated on danganronpa antebellum lockdown , its been a project ive been keeping my eyes on since }}$
 </br>
