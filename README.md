@@ -22,15 +22,15 @@ ${\textsf{\color{#AB0303} i really love bunch of friends !! I love them alot and
 </br>
 ${\textsf{\color{#AB0303} and is where my name originates from !! as for media i love yellowjackets , sweetpea , the modern persona trilogy , }}$
 </br>
-${\textsf{\color{#AB0303} pokemon , yo kai watch , minecraft , fnaf , fortnite , overwatch , forsaken and many horror films and shows !! }}$
+${\textsf{\color{#AB0303} pkmn , ykw , minecraft , fnaf , fortnite , overwatch , forsaken , madoka magica and many horror films and shows !! }}$
 
 <p align="center">
 <img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103235803.png>
 </br>
 ${\textsf{\color{#AB0303} i have a big passion for listening to music and understanding and dissecting every little lyric some of my }}$
 ${\textsf{\color{#AB0303} favourite artists are; pinkpantheress [ who i saw live with my best friend !! ♡ ] , jane remover [ who ive seen live ]}}$
-${\textsf{\color{#AB0303} sabrina , faye webster , beabadoobee , the marias , paramore , underscores , malcolm todd , natalie jinju , mitski }}$
-${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday !! im always open to recommendations and would love to recieve them !!}}$
+${\textsf{\color{#AB0303} sabrina , faye webster , beabadoobee , the marias , paramore , underscores , malcolm todd , olivia rodrigo , mitski }}$
+${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday , chappell roan im always open to recommendations would love to recieve them !!}}$
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=690000&bar_color_cover=false">
