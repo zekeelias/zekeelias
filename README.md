@@ -31,7 +31,18 @@ ${\textsf{\color{#AB0303} i have a big passion for listening to music and unders
 ${\textsf{\color{#AB0303} favourite artists are; pinkpantheress [ who i saw live with my best friend !! ♡ ] , jane remover [ who ive seen live ]}}$
 ${\textsf{\color{#AB0303} sabrina , faye webster , beabadoobee , the marias , paramore , underscores , malcolm todd , natalie jinju , mitski }}$
 ${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday !! im always open to recommendations and would love to recieve them !!}}$
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=690000&bar_color_cover=false">
+  </a>
 
 <p align="center">
 <img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103235830.png>
 </br>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104001847.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104001936.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104002039.png>
+<img src=https://64.media.tumblr.com/26d8375c6861aedea784b94575e666e0/b5461c199911dbe0-7d/s100x200/7072d4cf60d2ce363616b532c3bdc2cc99c2eec7.pnj>
+<img src=https://64.media.tumblr.com/64b8e0c77bb198c55364d988498eb6fd/d2935ceccdd8609d-77/s100x200/d3b4782d6feee243a3c100ac10567fc3c544b666.pnj>
+<img src=https://64.media.tumblr.com/95e53cdd7f9e14969e56419790a8b915/651055d7ec6fb63c-5c/s100x200/8143c6564de290dd3111e1c99d10d09f6f8f5464.pnj>
+<img src=https://64.media.tumblr.com/2c09e60bc92580e40a71eb51770d17f5/ec67941a999c1442-dd/s100x200/29f1a121b99bac89dacbd27bbf19992b9b4008c5.pnj>
