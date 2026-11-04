@@ -20,7 +20,7 @@ ${\textsf{\color{#AB0303} peppermint , lyemene and in a platonic way lyrazeke an
 <p align="center">
 <img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103233059.png>
 </br>
-${\textsf{\color{#AB0303} i really love bunch of friends !! I love them alot and im waiting for season 3 I NEED IT , my bias is coy piso }}$
+${\textsf{\color{#AB0303} i really love bunch of friends !! I love them alot and im waiting for season 3 my bias is coy piso }}$
 </br>
 ${\textsf{\color{#AB0303} and is where my name originates from !! as for media i love yellowjackets , sweetpea , the modern persona trilogy , }}$
 </br>
