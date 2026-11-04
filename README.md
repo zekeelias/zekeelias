@@ -5,15 +5,24 @@
    </br>
 <p align="center">
  ${\textsf{\color{#AB0303}please call me coy ! }}$ ${\textsf{\color{#AB0303}i use he/him }}$ ${\textsf{\color{#AB0303}i am 18 years old}}$ ${\textsf{\color{#AB0303}therefore if you are}}$ ${\textsf{\color{#AB0303}16 or under please }}$ ${\textsf{\color{#AB0303}do not expect me to}}$ ${\textsf{\color{#AB0303}interact with you}}$
-<p align="center">
+</br>
  ${\textsf{\color{#AB0303}im currently very fixated on danganronpa antebellum lockdown , its been a project ive been keeping my eyes on since }}$
- <p align="center">
+</br>
  ${\textsf{\color{#AB0303}chapter 2 deadly life and im very inlove with it and tend to gush over the writing and characters , my favourites being ; }}$
-<p align="center">
+ </br>
 ${\textsf{\color{#AB0303} zeke (as if that wasnt obvious) , lyra , asu , alora , shinku , fu , iz , mint. i do love my shinzeke content ALOT aswell as }}$
-<p align="center">
+</br>
 ${\textsf{\color{#AB0303} peppermint , lyemene and in a platonic way lyrazeke and lyrasuzeke }}$
 </br>
 
 <p align="center">
 <img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103233059.png>
+</br>
+${\textsf{\color{#AB0303} i really love bunch of friends !! I love them alot and im waiting for season 3 I NEED IT , my bias is coy piso }}$
+</br>
+${\textsf{\color{#AB0303} and is where my name originates from !! as for media i love yellowjackets , sweetpea , the modern persona trilogy , }}$
+</br>
+${\textsf{\color{#AB0303} pokemon , yo kai watch , minecraft , fnaf , fortnite , overwatch , forsaken and many horror films and shows !! }}$
+
+<p align="center">
+<img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103235803.png>
