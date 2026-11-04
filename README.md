@@ -26,3 +26,8 @@ ${\textsf{\color{#AB0303} pokemon , yo kai watch , minecraft , fnaf , fortnite ,
 
 <p align="center">
 <img height="100" alt="image" src=https://file.garden/aiwuFb1dcGybpNqd/Untitled431_20261103235803.png>
+</br>
+${\textsf{\color{#AB0303} i have a big passion for listening to music and understanding and dissecting every little lyric some of my }}$
+${\textsf{\color{#AB0303} favourite artists are; pinkpantheress [ who i saw live with my best friend !! ♡ ] , jane remover [ who ive seen live ]}}$
+${\textsf{\color{#AB0303} sabrina , faye webster , beabadoobee , the marias , paramore , underscores , malcolm todd , natalie jinju , mitski }}$
+${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday !! im always open to recommendations and would love to recieve them !!}}$
