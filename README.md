@@ -42,6 +42,9 @@ ${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday !! im 
 <img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104001847.png>
 <img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104001936.png>
 <img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104002039.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104092138.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104092033.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104091743.png>
 <img src=https://64.media.tumblr.com/26d8375c6861aedea784b94575e666e0/b5461c199911dbe0-7d/s100x200/7072d4cf60d2ce363616b532c3bdc2cc99c2eec7.pnj>
 <img src=https://64.media.tumblr.com/64b8e0c77bb198c55364d988498eb6fd/d2935ceccdd8609d-77/s100x200/d3b4782d6feee243a3c100ac10567fc3c544b666.pnj>
 <img src=https://64.media.tumblr.com/95e53cdd7f9e14969e56419790a8b915/651055d7ec6fb63c-5c/s100x200/8143c6564de290dd3111e1c99d10d09f6f8f5464.pnj>
@@ -59,3 +62,9 @@ ${\textsf{\color{#AB0303} phoebe bridgers , clairo , songs on my birthday !! im 
 <img src=https://64.media.tumblr.com/b820d2b42d35b6aa45723a6a9222b8d6/ba65820d36dc4725-0c/s250x400/6e2fa8bb025f095ab6052eae41fec1ed9a5a4778.gifv>
 <img src=https://64.media.tumblr.com/bd79b851c2331fab09968956391148c1/d5af8fcda5e9a894-8b/s100x200/a97c756ae9b6c6928ec1dbb46d8627b7b552facb.gifv>
 <img src=https://64.media.tumblr.com/6674d35fe8088927a76835cae039f8d6/6d825e8f63e37281-64/s100x200/45e5f0bccc5d66472bd11b22bcf49a6c3c9d10c1.pnj>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104104150.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104104032.png>
+<img src=https://file.garden/aiwuFb1dcGybpNqd/Untitled432_20261104104110.png>
+</br>
+<p align="center">
+<img width="300" alt="image" src=https://64.media.tumblr.com/60836711c23874182d01ac8bf3931f19/fc16cd67ed8f0b23-40/s250x400/1857555652f11f5ebf9718681538291f28d160f0.gifv>
